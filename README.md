@@ -1,1 +1,0 @@
-# primer-parcial-Escalante-Elvio
